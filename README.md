@@ -1,3 +1,6 @@
+I have very stong facebook accounts for all kinds of spamming
+What app +40 7 2 1 356 7 0 2
+
 ![](https://i.imgur.com/UO7ZqKM.png)
 # FACEBOOK BOT SPAM SHARE
 The function of this tool is to share spam posts you want using the URL post from Facebook Lite. You need an extra account to log in to use the tool and to get the cookie that will be used to make the command work.
